@@ -1,1 +1,0 @@
-# the-bimsmith.github.io
